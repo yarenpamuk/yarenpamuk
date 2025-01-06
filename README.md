@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @yarenpamuk, A 25 years old student, loves and tries to learn always.
-- 📫 You can reach me on yarenpamuk@yahoo.com
+- 📫 You can reach me on yarenpamuk@studio78.info
